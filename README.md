@@ -1,0 +1,1 @@
+# viji_guvi_minipro_12_major1
